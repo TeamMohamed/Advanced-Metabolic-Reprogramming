@@ -29,7 +29,7 @@ Anwar Mohamed (2025). *Advanced Metabolic Reprogramming: A Comprehensive Framewo
 ## 📩 Contact
 
 For licensing, collaborations, or deployment inquiries:  
-**📧 ecssignalling@gmail.com
+**📧 TeamMohamed@proton.me
 
 
 
